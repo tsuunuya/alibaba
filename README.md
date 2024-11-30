@@ -7,7 +7,7 @@ PLEASSEEEE INTERACT!! also im a minor so please dont be weird ![d87pcp](https://
 ![9f6qsa](https://github.com/user-attachments/assets/06697ba4-b32a-4428-ad98-e70e622ab475)
 
 
-im c+h friendly also if u copy my skins idgaf TO BE HONEST
+im c+h friendly also if u copy my skins idgaf TO BE HONEST UR CHOICE
 
 you can see me mostly on the spot near spawn, presents or bsd spot
 
