@@ -11,6 +11,10 @@ im c+h friendly also if u copy my skins idgaf TO BE HONEST
 
 you can see me mostly on the spot near spawn, presents or bsd spot
 
+but im mostly off-tab if im not with my friend! please whisper me
+
+to interact!
+
 ![vvq6jr](https://github.com/user-attachments/assets/edab85a2-1c03-4538-a6f9-92da36b69de8)
 
 CHECK STRAWPAGE FOR MORE INFO!!! >W<
